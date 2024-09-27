@@ -1,4 +1,4 @@
-## Bem vindos ao meu peril💙
+## Bem vindos
 
 
 Meu nome é Maria Eduarda Medeiros
